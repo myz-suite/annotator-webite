@@ -1,4 +1,4 @@
-# Terms of Service (English)
+# Terms of Service
 
 **Effective date:** 2025-11-04
 
